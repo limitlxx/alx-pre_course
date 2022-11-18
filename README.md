@@ -1,2 +1,2 @@
 My first readme
-working on me
+working on my self is the best
